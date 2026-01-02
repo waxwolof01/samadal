@@ -1,0 +1,2 @@
+# samadal
+ngir xool
